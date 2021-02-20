@@ -1,4 +1,4 @@
-# Strofonofe de Frango
+# Estrogonofe de Frango
 
 ## Ingredientes
 
